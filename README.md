@@ -2,10 +2,11 @@ GABRIEL RIKEN LUI
 
 - ESTUDANTE
 
-- SOU DO ALURA
+- SOU DA PLATAFORMA DO ALURA
 
 - SOU INICIANTE NO ALURA
 
 - TENHO 15 ANOS
 
-- ![](https://tenor.com/pt-BR/view/pedro-pedro-flamengo-pedro-guilherme-pedro-libertadores-gif-26958861)
+![](https://media.tenor.com/pJyuKMSIMyAAAAAM/ronaldo-ronaldo-al-nassr.gif)
+
